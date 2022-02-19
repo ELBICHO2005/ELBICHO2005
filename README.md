@@ -1,8 +1,8 @@
 ![](https://user-images.githubusercontent.com/99903756/154788395-32b42bd7-9d8c-428f-9b05-1cddc56ab192.png)
 
+![](GHLogoTMP.png)
 
 ### Hola colegas 👋
-
 
 Gusto de visitar el perfil del Alumno 👨‍🏫 ✨ Alex Ramirez ✨.
 
