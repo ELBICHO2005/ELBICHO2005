@@ -1,4 +1,5 @@
-![](https://es.cooltext.com/Render-Image?RenderID=404733475417654&LogoId=4047334754#google_vignette)
+![](https://user-images.githubusercontent.com/99903756/154788395-32b42bd7-9d8c-428f-9b05-1cddc56ab192.png)
+)
 
 <a href="http://cooltext.com" target="_top"><img src="https://cooltext.com/images/ct_pixel.gif" width="80" height="15" alt="Cool Text: Logo and Graphics Generator" border="0" /></a>
 
